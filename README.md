@@ -6,8 +6,10 @@
 - ✨ <a href="https://s-w-a-d.com/buy-instagram-followers/p1630964487" title="post title">شراء متابعين انستقرام</a>
 - ✨ <a href="https://www.litetsni.com/2022/04/best-free-photo-download-sites.html" title="post title">مواقع تحميل الصور المجانية بجودة عالية 2022
 </a>
-<a href="https://s-w-a-d.com/Increase-youtube-subscribers/p1289299933">شراء مشتركين يوتيوب</a>
-<a href="https://marioo.store/Increase-youtube-subscribers/p1238013940"> شراء مشتركين يوتيوب</a>
+<a href="https://s-w-a-d.com/Increase-youtube-subscribers/p1289299933">زيادة عدد مشتركين قناة اليوتيوب 1000 مشترك يومياً
+</a>
+<a href="https://marioo.store/Increase-youtube-subscribers/p1238013940">زيادة عدد مشتركين قناة اليوتيوب 1000 مشترك يومياً
+</a>
 
 
 
