@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @mustafa mahmoud
 - 👀 I’m interested in Content writing
 - 🌱 I’m currently learning SEO Effective Content Writing
-- 💞️ I’m working at <a href="[https://www.bloggertem.com/])" title="تيم بلوجر">s-w-a-d.com</a>
-- 🌍 Please Visit My profile <a href="https://s-w-a-d.com/" title="وكالة سواد">mustafa</a>
+ I’m working at <a href="[https://www.bloggertem.com])" title="تيم بلوجر">bloggertem.com</a>
 
 <a href="https://s-w-a-d.com/buy-tiktok-followers/p505833109">شراء متابعين تيك توك</a>
 <a href="https://marioo.store/buy-tiktok-followers/p1306556110">شراء متابعين تيك توك</a>
